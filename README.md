@@ -8,7 +8,7 @@
 - 💬 Ask me about **web development , python**
 
 - 📫 How to reach me youssef.ahmed.fci@gmail.com
-- 01025015179 || 01277672245
+- 01277672245
 
 - ⚡ Fun fact **I am Funny**
 
